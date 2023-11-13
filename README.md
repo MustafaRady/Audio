@@ -29,9 +29,7 @@ Complete the purchase securely using our reliable payment options.
 Contact Us
 Have questions or need assistance? Our customer support team is ready to help.
 
-Email: support@audiostore.com
-Phone: 1-800-123-4567
-Follow Us
+
 Stay updated on the latest products, promotions, and tech trends by following us on social media:
 
 Facebook
